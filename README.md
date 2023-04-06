@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 📫 How to reach me.         
        facebook-Ayush Raj.     
-       Insta-@mrshirker
+       Insta-@mr__shirker
          
 
 <!---
