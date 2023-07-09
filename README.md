@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @lyingninja
 - 👀 I’m interested in playing sports ,eating, 😴 and also 😅😅coding
 - 🌱 I’m currently learning ...
-- 📫 How to reach me.         
-       facebook-Ayush Raj.     
+- 📫 How to reach me.        
        Insta-@mr__shirker
          
 
